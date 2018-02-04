@@ -65,6 +65,8 @@ Most painters prefer the paper stretched, or of a sufficiently heavy basis weigh
 
 ## Pigment & paint behavior
 
+https://www.youtube.com/watch?v=VjtmhyVXMT0&t=546s
+
 Most wash tutorials give the impression that paints don't matter in your wash technique: all wash mixtures can be applied in the same way. This assumption is a legacy of "color theorists", who teach that paints are just "colors", so one "brown" or "blue" wash mixture is just the same as any other.
 
 In fact, painters make paintings with paints, not with "colors", so the types of paints in a wash mixture have a major effect on the quality of the wash and how the wash should be applied. 
