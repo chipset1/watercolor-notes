@@ -13,6 +13,9 @@ write about expectations / results / process and practise
 
 
 ## washes 
+
+https://www.handprint.com/HP/WCL/tech24.html
+
 The difficulty in learning watercolor is that there is too much going on at once. 
 
 I found the only way to unlock the problem was to break the technique down into its basic components 
