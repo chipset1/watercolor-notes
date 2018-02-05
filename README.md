@@ -134,6 +134,11 @@ http://mateuszurbanowicz.com/projects
 
 # lesson 2
 
+winsor and newton color chart: 
+
+http://d4of2brjuv1jo.cloudfront.net/assetfiles/73799e61-32a1-4db8-a3e8-730a91eb0cff.pdf
+
+
 - How to use reference
 - Sketching and rough compositions
 - Light and Shadow
